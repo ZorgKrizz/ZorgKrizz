@@ -1,1 +1,1 @@
-I code.. thats it
+# A "new gen" "discord raider" 💀
