@@ -1,1 +1,1 @@
-# A "new gen" "discord raider" 💀
+# fucked in the head
